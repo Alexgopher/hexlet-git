@@ -1,1 +1,0 @@
-new post for begginers
